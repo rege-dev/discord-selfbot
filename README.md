@@ -4,4 +4,4 @@
 
 
 # INFO
-ask me for more details on it cord --> regedit#0100
+ask me for more details on it discord --> REGE#6666
